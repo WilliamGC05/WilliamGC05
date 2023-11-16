@@ -1,0 +1,4 @@
+- 👋 Hi, I’m William 
+- 👀 I’m interested in anyting about computers, software and hardware
+- 🌱 I’m currently learning about Cybersecurity at the University of South Carolina - Aiken
+- 📫 How to reach me you can email me at carrollwilliam0525@gmail.com
